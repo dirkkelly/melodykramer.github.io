@@ -12,7 +12,7 @@ Meet [Sue Diaz][1]. Sue lives in the St. Louis area and for the past 15 years, s
 
 Sue answered a series of questions about how she gets her news. If you&#8217;d like to participate, let me know. To see the archives, [click here][2].
 
-**1. How do you get your news? **
+**1. How do you get your news?**
 
 Twitter fulfills my minimum daily allowance of news, both world, regional (St. Louis), and local (my local indie bkstore, coffee shop, bakery, etc.). On occasion or when traveling, there’s nothing better than settling down with coffee and an actual newspaper like NYT, WSJ, etc. We moved to this area in the last year and I still don’t know/care what the local/national TV news channels are.
 
@@ -20,7 +20,7 @@ Twitter fulfills my minimum daily allowance of news, both world, regional (St. L
 
 [Here.][3]
 
-**3. How do you take your coffee? **
+**3. How do you take your coffee?**
 
 Back to black in 2015; I got hooked on sugary creamers over the holidays.
 
@@ -32,7 +32,7 @@ I like that I can follow newspapers and even specific journalists on Twitter… 
 
 I remember when Nixon brought over the pandas from China; maybe in the MiniPage of our local paper (Waukegan News Sun). Loved MiniPages.
 
-**6. What was the best thing that happened to you this week? **
+**6. What was the best thing that happened to you this week?**
 
 The best thing that will happen this coming week is a visit by my oldest sister. Can’t wait!
 
@@ -40,7 +40,7 @@ The best thing that will happen this coming week is a visit by my oldest sister.
 
 It’s often divisive, agenda-driven, slanted. Just give me the facts and let me sort it out without the spin.
 
-**8. How do you get your news when you travel? **
+**8. How do you get your news when you travel?**
 
 I follow Twitter, it follows me wherever I go.
 
